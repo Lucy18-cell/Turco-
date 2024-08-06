@@ -1,1 +1,2 @@
 # Turco-
+https://www.bing.com/images/search?view=detailV2&ccid=fh8aL5fa&id=32BA9E8C10D0D348E7BE4F59E13CB57146EE21F3&thid=OIF.uF9GK4z7lheDaBp4jmGrOQ&mediaurl=https%3a%2f%2fcdn.atarde.com.br%2fimg%2fArtigo-Destaque%2f1280000%2fConheca-Yusuf-Dikec-atirador-turco-que-viralizou-a0128086500202408011220.jpg%3fxid%3d6314133&cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.7e1f1a2f97dae3ee6e9aca38ff1cd518%3frik%3d%26pid%3dImgRaw%26r%3d0&exph=337&expw=474&q=atirador+turco&simid=7088662617544&FORM=IRPRST&ck=B85F462B8CFB961783681A788E61AB39&selectedIndex=0&itb=0&ajaxhist=0&ajaxserp=0
